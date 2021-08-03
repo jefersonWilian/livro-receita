@@ -1,12 +1,13 @@
-#  		Bolo de cenoura com calda de chocolate 
+#  				<u>		Bolo de cenoura com calda de chocolate</u> 
 
-![](https://www.bolodecenoura.com/wp-content/uploads/2019/11/Bolo-de-Cenoura-sem-Leite.jpeg)
+<img src="https://c.pxhere.com/photos/e5/03/cake_carrot_party_sweet_dainty_chocolate-929546.jpg!d" style="zoom: 50%;" />
 
-###### 																				Imagem retirada de: https://www.bolodecenoura.com/bolo-de-cenoura-sem-leite/
+> ###### 																														      																										Imagem ilustrativa retirada de: https://pxhere.com/pt/photo/929546
+>
 
 Uma excelente pedida para um café da tarde, rápido e fácil de preparar! Impressione a quem você ama com esse bolo incrível que nos infância de volta ao nosso tempo de infância!
 
-### Massa
+### <u>**Massa**</u>
 
 #### **Ingredientes:**
 
@@ -20,7 +21,7 @@ Uma excelente pedida para um café da tarde, rápido e fácil de preparar! Impre
 
 No liquidificador, bater os ovos, o óleo, a cenoura e o açúcar até ficar homogêneo. Em uma tigela, despejar a mistura batida e acrescentar, aos poucos, a farinha de trigo. Misturar bem e adicionar o fermento, aos poucos incorpore o fermento à massa. Assar o bolo em uma forma untada, passar manteiga ou óleo e polvilhar farinha de trigo, por aproximadamente 35-40 minutos em forno a 180 graus, ou na panela de pressão na função **bolo**  por 30-40 minutos também. Após assado, espere esfriar um pouco e desenforme.
 
-### **Cobertura**
+### <u>**Cobertura**</u>
 
 #### **Ingredientes:**
 
