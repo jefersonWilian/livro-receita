@@ -5,5 +5,5 @@
 ### 																Com receitas daqueles bolos incríveis que a gente comeu na infância e não esquece!
 
 #### 			Receitas presentes no e-book:
-- Bolo de Cenoura com cobertura de chocolate sequinha;
+- Bolo de cenoura com cobertura de chocolate sequinha;
 - Bolo de chocolate com cobertura de brigadeiro;
