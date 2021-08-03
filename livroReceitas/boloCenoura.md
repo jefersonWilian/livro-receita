@@ -5,7 +5,7 @@
 > ###### 																														      																										Imagem ilustrativa retirada de: https://pxhere.com/pt/photo/929546
 >
 
-Uma excelente pedida para um café da tarde, rápido e fácil de preparar! Impressione a quem você ama com esse bolo incrível que nos infância de volta ao nosso tempo de infância!
+Uma excelente pedida para um café da tarde, rápido e fácil de preparar! Impressione a quem você ama com esse bolo incrível que nos traz de volta ao nosso tempo de infância!
 
 ### <u>**Massa**</u>
 
